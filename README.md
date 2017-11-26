@@ -1,1 +1,0 @@
-# minefor.fun
